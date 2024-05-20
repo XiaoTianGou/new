@@ -1,6 +1,6 @@
 # 欢迎来到小舔狗发布页
 
-请收藏本发布页，且我们的最新网址是：[huaguo3.free.nf](huaguo3.free.nf)
+请收藏本发布页，且我们的最新网址是：[https://huaguo3.free.nf](https://huaguo3.free.nf)
 
 ## 贡献
 
